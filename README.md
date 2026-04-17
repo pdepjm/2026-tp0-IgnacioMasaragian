@@ -7,7 +7,7 @@
 ## Un poco sobre mí
 - Tengo 21 años 
 - Soy de villa urquiza
-- Hago Jiujitsu y MMA  
+- Hago Jiujitsu y MMA (Mi llave favorita es el mata leon)
 - Arranque la facu en 2023
 - Me gusta escuchar musica y salir con amigos
 
